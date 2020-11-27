@@ -16,3 +16,4 @@ Cuci tangan dengan disinfektan atau menggunakan sabun di bawah air mengalir.
 Tidak sembarangan makan di Jalan.
 Jangan droples di depan orang lain.
 Periksakan diri bila terkena demam dan suhu badan tinggi
+RJHP-Scholarship
